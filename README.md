@@ -6,3 +6,4 @@ remote or clone
 
 # merry chrismas 
 **they are so cute. 
+#there is some stupid people around me.
